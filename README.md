@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @reemmda
+- 👋 Hi, I’m Reem Mohammed
 - 👀 I’m interested in design and application development.
 - 🌱 I’m currently learning graphic design and fast typing.
 - 📫 How to reach me ? My email Reemmad@gmail.com
